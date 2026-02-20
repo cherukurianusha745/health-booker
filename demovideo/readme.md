@@ -1,2 +1,2 @@
 demo video link
-https://drive.google.com/drive/home?dmr=1&ec=wgc-drive-%5Bmodule%5D-goto
+https://drive.google.com/file/d/1jqYHwLICgfFmfNVqGqNw2aI7IQSBOBuK/view?usp=sharing
